@@ -1,6 +1,8 @@
-# D-turn                                  |￣￣￣￣￣￣￣￣￣|  
+# D-turn 
+you have wasted time opening this link                                          
+                                          |￣￣￣￣￣￣￣￣￣|  
                                           |    Good Job!    |
-you have wasted time opening this link    |_________________|
+                                          |_________________|
                                           (\__/) || 
                                           (^ㅅ^) || 
                                           / 　 づ
