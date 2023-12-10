@@ -1,3 +1,3 @@
 # D-turn 
-you have wasted time opening this link                                          
+you (maybe) have wasted time opening this link                                          
 good job!
